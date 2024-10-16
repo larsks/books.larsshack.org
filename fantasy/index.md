@@ -1,0 +1,43 @@
+---
+title: Fantasy
+---
+
+## The Goblin Emperor by Katherine Addison (Sarah Monette)
+
+1. [The Goblin Emperor](https://us.macmillan.com/books/9780765365682/thegoblinemperor)
+
+## The Cemeteries of Amalo by Katherine Addison
+
+1. [Witness for the Dead](https://us.macmillan.com/books/9780765387431/thewitnessforthedead)
+1. [The Grief of Stones](https://us.macmillan.com/books/9781250813916/thegriefofstones)
+1. [The Tomb of Dragons](https://us.macmillan.com/books/9781250816191/thetombofdragons) (coming March 2025)
+
+## Temple of the White Rat by T. Kingfisher (Ursula Vernon)
+
+### The Saints of Steel
+
+1. [Paladin's Grace](https://argyllproductions.com/product/paladins-grace/)
+1. [Paladin's Strength](https://argyllproductions.com/product/paladins-strength/)
+1. [Paladin's Hope](https://argyllproductions.com/product/paladins-hope/)
+1. [Paladin's Faith](https://argyllproductions.com/product/paladins-faith-saint-of-steel-book-4/)
+
+### Clockwork
+
+1. [Clockwork Boys](https://argyllproductions.com/product/clockwork-boys/)
+1. [The Wonder Engine](https://argyllproductions.com/product/the-wonder-engine/)
+
+### Standalone
+
+1. [Swordheart](https://argyllproductions.com/product/swordheart/)
+
+## The Craft Sequence by Max Gladstone
+
+(In published order, but you may instead read them in [chronological order](https://www.thehiddenschools.com/articles/craft-sequence-reading-order).)
+
+1. [Three Parts Dead](https://www.maxgladstone.com/writing/three-parts-dead/)
+1. [Two Serpents Rise](https://www.maxgladstone.com/writing/two-serpents-rise/)
+1. [Full Fathom Five](https://www.maxgladstone.com/writing/full-fathom-five/)
+1. [Last First Snow](https://www.maxgladstone.com/writing/last-first-snow/)
+1. [Four Roads Cross](https://www.maxgladstone.com/writing/four-roads-cross/)
+1. [Ruin of Angels](https://www.maxgladstone.com/writing/ruin-of-angels/)
+1. [Dead Country ](https://www.maxgladstone.com/writing/dead-country/)
