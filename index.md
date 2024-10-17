@@ -1,5 +1,5 @@
 ---
-title: Lars's Book Recommendations
+title: Lars' Book Recommendations
 ---
 
 - [Science Fiction](scifi/)
