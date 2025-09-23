@@ -53,3 +53,17 @@ same world, but don't depend on each other.
 1. [Four Roads Cross](https://www.maxgladstone.com/writing/four-roads-cross/)
 1. [Ruin of Angels](https://www.maxgladstone.com/writing/ruin-of-angels/)
 1. [Dead Country ](https://www.maxgladstone.com/writing/dead-country/)
+
+## The Riddle Master trilogy by Patricia McKillip
+
+This is an older series (1976!) but one then I still enjoy. Like the Katherine Addison books above, the pacing of these is slower than many contemporary stories.
+
+1. [The Riddlemaster of Hed]()
+1. [Heir of Sea and Fire]()
+1. [Harpist in the Wind]()
+
+## The Cygnet series by Patricia McKillip
+
+1. [The Sorceress and the Cygnet]()
+1. [The Cygnet and the Firebird]()
+1. [Cynget]()
